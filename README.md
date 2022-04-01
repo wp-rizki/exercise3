@@ -1,2 +1,2 @@
 # exercie3
-Exercise 3 Warung Pintar Group - Rizki Firmansyah
+Exercise 3 WP Group - Rizki Firmansyah
